@@ -4,4 +4,4 @@
 - I would love any opportunities to collaborate on projects particularly in the gaming or music space to improve my programming skills.
 - Contact me:
 - email: qdphillips@wm.edu
-- insta: @quentinphill
+
